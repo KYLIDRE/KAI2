@@ -1,1 +1,2 @@
 # KAI2
+AYUKO NA
